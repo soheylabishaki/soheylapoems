@@ -1,2 +1,2 @@
 # soheylapoems
-M.A. in Translation Studies, English Instructor, Poet Translator, 
+M.A. in Translation Studies, English Instructor, Translator, Poet
